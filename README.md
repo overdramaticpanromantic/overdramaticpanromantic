@@ -1,0 +1,5 @@
+- hi! i'm frank, a panromantic asexual demiboy
+- i play strategy, tower defense, and fps games
+- not learning programming, mainly here for game files, downloads, etc
+- you can dm me at .Frank#8819 on discord or @overdramaticpan on twitter
+- have a good day, remember y'all are valid
